@@ -20,4 +20,4 @@ Coming soon.
 
 -- Figuring this GitHub out, 
 https://discord.gg/fMeRQbpetk - Untamed Roleplay
-https://discord.gg/KgRWSf4SXU - Untamed Productions
+https://discord.gg/y3KPDguNz5 - Untamed Productions
